@@ -3,16 +3,17 @@
 这里汇总仓库内已经发布的内容，可按分类逐层浏览。
 
 <!-- gitflow:articles:start -->
-共收录 **8** 篇内容，按 **1** 个分类整理。
+共收录 **9** 篇内容，按 **1** 个分类整理。
 
 ## 分类导航
 
 | 分类 | 文章数 | 索引 |
 | --- | ---: | --- |
-| 加拿大pc28预测 | 8 | [查看分类文章](category-%E5%8A%A0%E6%8B%BF%E5%A4%A7pc28%E9%A2%84%E6%B5%8B.md) |
+| 加拿大pc28预测 | 9 | [查看分类文章](category-%E5%8A%A0%E6%8B%BF%E5%A4%A7pc28%E9%A2%84%E6%B5%8B.md) |
 
 ## 最近发布
 
+- [2026年9月权威模型预测:𝒑𝒄𝟐𝟖预测加拿大精准预测-香江财经](https://github.com/averyester/kypaxj/blob/main/2026%E5%B9%B49%E6%9C%88%E6%9D%83%E5%A8%81%E6%A8%A1%E5%9E%8B%E9%A2%84%E6%B5%8B-%F0%9D%92%91%F0%9D%92%84%F0%9D%9F%90%F0%9D%9F%96%E9%A2%84%E6%B5%8B%E5%8A%A0%E6%8B%BF%E5%A4%A7%E7%B2%BE%E5%87%86%E9%A2%84%E6%B5%8B-%E9%A6%99%E6%B1%9F%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:73cf75e06b01e50cffd40ae98d8854e34dea383cc0c06ebf958ecf9d5cbb8f65 -->
 - [2027年9月精准机构预测:𝐩𝐜𝟐𝟖怎么看走势-极光财经](https://github.com/averyester/kypaxj/blob/main/2027%E5%B9%B49%E6%9C%88%E7%B2%BE%E5%87%86%E6%9C%BA%E6%9E%84%E9%A2%84%E6%B5%8B-%F0%9D%90%A9%F0%9D%90%9C%F0%9D%9F%90%F0%9D%9F%96%E6%80%8E%E4%B9%88%E7%9C%8B%E8%B5%B0%E5%8A%BF-%E6%9E%81%E5%85%89%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:1c4ada009e83047042b291cf1b8b5c327d1a673034116f650d085ec61fd32e1f -->
 - [2026年9月前瞻机构预测:𝚙𝚌𝟸𝟾预测神测-中庸财经](https://github.com/averyester/kypaxj/blob/main/2026%E5%B9%B49%E6%9C%88%E5%89%8D%E7%9E%BB%E6%9C%BA%E6%9E%84%E9%A2%84%E6%B5%8B-%F0%9D%9A%99%F0%9D%9A%8C%F0%9D%9F%B8%F0%9D%9F%BE%E9%A2%84%E6%B5%8B%E7%A5%9E%E6%B5%8B-%E4%B8%AD%E5%BA%B8%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:21cbf74b3b197b1a30fe9ec4c9e3d1a25abdf5dfd6cf333f34b254522b94677a -->
 - [2027年9月智库综合预测:𝓅𝒸𝟚𝟠技巧三种方法-南海财经](https://github.com/averyester/kypaxj/blob/main/2027%E5%B9%B49%E6%9C%88%E6%99%BA%E5%BA%93%E7%BB%BC%E5%90%88%E9%A2%84%E6%B5%8B-%F0%9D%93%85%F0%9D%92%B8%F0%9D%9F%9A%F0%9D%9F%A0%E6%8A%80%E5%B7%A7%E4%B8%89%E7%A7%8D%E6%96%B9%E6%B3%95-%E5%8D%97%E6%B5%B7%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:2306066bca17c3541fbeffa82e391b3b1560cd082d21537f3f402bc34617a4bf -->
